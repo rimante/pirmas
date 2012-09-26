@@ -1,1 +1,3 @@
-Pirmoji musu kuriama repozicija
+Pirmoji Mano repozicija.
+Bandau kaþkà papildyti ir vël
+siøsiu á internetà
